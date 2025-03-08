@@ -1,1 +1,1 @@
-# manoj.1
+thaeter seating arrangement
